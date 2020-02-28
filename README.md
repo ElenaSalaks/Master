@@ -5,7 +5,7 @@
 
 **Author**: [@elenasalaks](https://twitter.com/elenasalaks) \
 **Version history**:
-* v1: 	March 2020
+* v1: 	February 2020
 
 **Status**: living 
 
