@@ -22,7 +22,7 @@ Likely we work together in some capacity and so you may find the below useful:
 
 
 1. As long as you do great work, have integrity, and are respectful of your peers; I am not particular about what your work schedule is, or from where you decide to work. 
-    1. In general, I have a love/hate relationship with email. If you are writing an essay, consider creating a separate artifact. And I need your attention on something with tremendous urgency, I’ll not be expecting you to find that out by checking your email.
+    1. In general, I have a love/hate relationship with email. If you are writing an essay, consider creating a separate artifact. And if need your attention on something with tremendous urgency, I’ll not be expecting you to find that out by checking your email.
     1.	Working long hours doesn’t impress me. Trust that you got hired because of the contribution you are making within a reasonable timeframe. And I will trust that you are using your time wisely. 
     1. Alot of the contributions we make is immeasurable. Whatever your deliverable(s) may be, how you achieve it is just as important. Try not to be an a**hole.
 
