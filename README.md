@@ -33,8 +33,7 @@ Likely we work together in some capacity and so you may find the below useful:
     1. There will always be stuff which doesn’t get done; the trick is make sure it’s the right stuff not to get done. It may be useful to keep a To Do list of the stuff which needs doing. Stack rank it, and don’t worry if stuff further down on this list doesn’t get done. All we can do is try. I once say a kindergarten poster that sums this up perfectly: “It’s okay that it’s not perfect. But it’s not okay not to try.”
     1. If you’re overloaded or not sure what to prioritize, let’s chat. I’m invested in your success.
 
-1. To summarize, I value decency, honesty, straightforwardness, dependability, and presence.
-    1. Call me out straight away if I miss the mark on any of these or if you have feedback. Thank you in 
+To summarize, I believe we can do great work together. I strive for excellence in my work but recognize I am far from perfect. Let me know how I can be better. 
 
 ## // TODO in version 2
 
