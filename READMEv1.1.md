@@ -15,7 +15,7 @@
 
 Likely we work together in some capacity and so you may find the below useful:
 
-1.	My work hours are sporadic. Where I once held a predictable work structure, I have found the lines between work and life outside of work become increasingly blurred, fluid, and integrated. 
+1.	My work hours are sporadic. Where I once held a predictable work structure, I have found the lines between work and life outside of work become blurred, fluid, and integrated. 
     1. I am an early riser. I sometimes jump online before my morning run, and before my mom-teacher-duties are in full swing.
     1. My children are at an age where they really benefit from 1:1 time to learn. Currently they’re responding better to structure earlier in the day so I’ve been setting different time blocks to make sure we at least address some of the fundamentals like reading, writing, and math. Where possible, I try to do this outside a “normal” workday, but that isn’t always possible. Currently 7am seems to be a good reading hour and 10am a good math worksheet hour. 
     1. I am also doing video chats at 11 with my dad who is currently recovering from COVID-19. Hospital staff are certainly heroes, but not always punctual. 
