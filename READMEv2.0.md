@@ -1,4 +1,4 @@
-# Working with ElenaSalaks - semi post-pandemic & post-self-actualization edition
+# Working with ElenaSalaks - semi post-pandemic edition
 
 ## elenasalaks/master
 
