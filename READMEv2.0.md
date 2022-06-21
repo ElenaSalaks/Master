@@ -8,7 +8,7 @@
 * [v1.1:   April 2020](https://github.com/ElenaSalaks/Master/blob/master/READMEv1.1.md)
 * [v1.0: 	February 2020](https://github.com/ElenaSalaks/Master/blob/master/READMEv1.0.md)
 
-**Status**: WIP [not yet updated]
+**Status**: WIP
 
 ## Stuff to know
 
